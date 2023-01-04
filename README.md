@@ -66,6 +66,8 @@ Capitulo 9 y 10
 
 ![image](https://user-images.githubusercontent.com/116761073/210475781-38a27e0b-d994-43ab-80fb-ff8520394f45.png)
 
+![image](https://user-images.githubusercontent.com/116761073/210475974-0c8b166b-3bb2-4e27-bcfe-899355f28a4c.png)
+
 
 # 4. VÍDEO
 
